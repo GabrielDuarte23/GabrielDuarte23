@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @GabrielDuarte23
 - 👀 I’m interested in Metal
 - 🌱 I’m currently learning High School
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me gabrielbilo2007@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm a Brazilian who enjoys playing Xbox and I plan to study veterinary medicine in the future
